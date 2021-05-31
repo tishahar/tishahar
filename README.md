@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tishahar
-- 👀 I’m interested in becoming a market researher anayst
-- 🌱 I’m currently learning a degree in marketing!
+- 👀 I’m interested in becoming a market researcher analyst
+- 🌱 I’m currently studying a degree in marketing!
 - 💞️ I’m looking to collaborate on anything!
 - 📫 How to reach me... Reach me on IG @t1shah.ar
 
